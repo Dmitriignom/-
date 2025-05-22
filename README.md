@@ -1,1 +1,1 @@
-# -
+# RONALDO PYCHCKA
